@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Eliosto LIBIDINOSO: Described in two Bookes: VVherein Their imminent dangers are declared, who guidi
+
 1. To the Right Honourable, and truly ennobled Lord, Philip Herbert, Earle of Mountgomery, and Baron of Shurland, &c. Iohn Hind wisheth all happinesse that either this world affoords, or the heavens conteine.
 
 1. Ad Lectorem.
